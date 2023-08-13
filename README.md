@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @ekimaycicek
+- 👋 Hi, I’m Ekim
 
